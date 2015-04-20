@@ -1,2 +1,2 @@
 # first-repository
-My First Repository
+GitHub noob. Late to game, but don'r call it a comeback...
